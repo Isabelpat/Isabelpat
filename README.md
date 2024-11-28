@@ -1,5 +1,3 @@
-## Hi there 👋
-
 ## !Hola bienbenidos a mi perfil.   👋
 
 # Soy Patricia Isabel Benítez Ramos
